@@ -1,0 +1,1 @@
+pasos realizados para el primer ejercicio
